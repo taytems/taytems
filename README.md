@@ -1,1 +1,1 @@
-- hi, @taytems here. you're probably looking for my github which can be found here: @TateB
+- hi, @taytems here. you're probably looking for my github which can be found here: [@TateB](https://github.com/TateB)
